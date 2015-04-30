@@ -1,0 +1,1 @@
+Simpenan datane wong
